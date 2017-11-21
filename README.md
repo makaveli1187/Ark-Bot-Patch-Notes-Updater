@@ -1,2 +1,2 @@
 # Ark-Bot-Patch-Notes-Updater
-Updating Ark Patch Notes
+https://steamcommunity.com/app/346110/discussions/0/594820656447032287/
